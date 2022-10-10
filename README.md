@@ -9,5 +9,3 @@ I enjoy:
   - cheffing
   - instigating
   - Mongolian History
-
-Hit me up at batjin@umich.edu or 5108905909! 
