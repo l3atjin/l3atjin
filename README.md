@@ -2,6 +2,7 @@ Hey! I'm Batjin(Bat). I study Computer Science and Statistics. I like puzzles an
 I enjoy:
   - good coffee
   - indie music
+  - good testing practices
   - horses
   - mongolian sad songs
   - working out
