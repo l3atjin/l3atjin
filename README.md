@@ -7,5 +7,4 @@ I enjoy:
   - working out
   - raising peace lilys
   - cheffing
-  - instigating
   - Mongolian History
